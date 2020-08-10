@@ -1,1 +1,1 @@
-# stratup-van--het-jaar
+# stratup-van-het-jaar
